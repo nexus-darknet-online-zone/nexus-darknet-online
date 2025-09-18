@@ -37,4 +37,6 @@ For anyone looking to engage in darknet market activities securely and anonymous
 
 For official access, visit the Nexus Darknet Online platform here: http://nexusya4eiklfwqoly52t4igcrcu3lgtaykkjbnsncjcmkcufxoca6yd.onion
 
-Update:  Sunday 14 September 2025
+
+
+Update:  18 September 2025 TOR link corrected
